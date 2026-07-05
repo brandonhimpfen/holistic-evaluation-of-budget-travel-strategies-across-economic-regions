@@ -1,1 +1,1 @@
-# holistic-evaluation-of-budget-travel-strategies-across-economic-regions
+# Holistic Evaluation of Budget Travel Strategies Across Economic Regions 
